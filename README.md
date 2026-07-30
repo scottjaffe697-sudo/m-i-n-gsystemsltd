@@ -1,2 +1,2 @@
 # m-i-n-gsystemsltd
-SecureLinkLibraries and Predominant '-resolved,resolves,tesolving'categorires
+SecureLinkLibraries and Predominant '-resolved,resolves,resolving'categories
